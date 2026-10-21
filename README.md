@@ -24,4 +24,4 @@ creds : @2b2t on tumblr
 
 
 ⊹𖨂﹒˒𓎟ׄ。i am c + h friendly and you can whisper and int at all time ! please do not offend or attack me suddenly.
-　　　　　　　　　　　　　　　　.˳˳.⋅ॱ     usually seem with friends , i love my bsf bonbon !  ⊹  ´ཀ`
+　　　　　　　　　　　　　　　　.˳˳.⋅ॱ     usually seem with friends ahem let me correct myself usually seem with BONBON , i love my bsf bonbon ! Hii bonbon ily smsmsm ⊹  ´ཀ`
