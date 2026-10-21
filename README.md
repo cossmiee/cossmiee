@@ -10,7 +10,7 @@
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ any prns⠀𐂯⠀im more of a cat person and i prefer sweets !! and i LOOOOOOOOOOVE bonbon ok
  ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 
-⠀ 𓏲ּ𝄢 ⠀ **pansexual** ⠀ 𓈒 ⠀ no prefs as long as they make me happy ⠀ ⟢
+⠀ 𓏲ּ𝄢 ⠀ pansexual ⠀ 𓈒 ⠀ no prefs as long as they make me happy ⠀ ⟢
 <img width="750" height="80" alt="tumblr_9ed24aa7268f2030d108842ee0a4cb6d_12af39bd_1280" src="https://github.com/user-attachments/assets/dcfeb797-4bea-4196-a283-2ab624a2b0b8" />
 𓈒ִ ㅤ <img width="20" height="20" alt="tumblr_11c73d92fd4a475c3e822a012f0e3580_5bfe6a7f_250" src="https://github.com/user-attachments/assets/8324e4d1-c0bf-4151-8d32-318c4ed375b6" />
 
